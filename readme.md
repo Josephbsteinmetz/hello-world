@@ -1,3 +1,3 @@
-join me
+join us
 
 for the
