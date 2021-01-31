@@ -1,3 +1,3 @@
 join me and
 
-for the
+for the best
